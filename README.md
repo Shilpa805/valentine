@@ -1,3 +1,3 @@
-#ask them 
+# Ask them out.
 <br>
-shoot your shot with this friendly virus on valentines day!
+Shoot your shot with this friendly virus on valentines day!
